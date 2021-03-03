@@ -9,7 +9,7 @@
 <br>
 <br>
 ## Social Media
-Instagram: [@_gf](https://instagram.com/_agf)
+Instagram: [@_agf](https://instagram.com/_agf)
 <br>
 Discord: Soud#0737
 <br>
