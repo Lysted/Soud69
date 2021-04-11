@@ -11,7 +11,7 @@
 ## Social Media
 Instagram: [@8Y](https://instagram.com/8Y) - [@_agf](https://instagram.com/_agf) 
 <br>
-Discord: Soud#0737
+Discord: Soud#5866
 <br>
 Github: [Soud69](https://github.com/Soud69)
 <br>
