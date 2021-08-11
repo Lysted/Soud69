@@ -15,4 +15,4 @@ Discord: Soud#5866
 <br>
 Github: [Soud69](https://github.com/Soud69)
 <br>
-Telegram: [Soud69](https://t.me/Soud69)
+Telegram: [aBaDy1337](https://t.me/aBaDy1337)
